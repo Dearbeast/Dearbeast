@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dearbeast
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in NFT and crypto
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on anything benefitial
 - 📫 How to reach me discord @D-beast and Twitter @Dear_beast99
 
 <!---
